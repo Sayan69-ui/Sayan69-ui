@@ -1,4 +1,4 @@
-# Sayan69-ui-
+# Sayan69-ui
 
 # 👋 Hi, I'm Sayan Bhowmik
 
